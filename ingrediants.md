@@ -1,0 +1,1 @@
+ Ingrdiants Need for Italian Maggi is 1 tbsp of olive oil, 1-2 finely chopped cloves of garlic, one finely chopped onion, 2-3 mushrooms, pasta sauce, 1 tsp oregano and any form of grated cheese and some veggies for garnish. 
